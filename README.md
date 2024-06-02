@@ -7,7 +7,7 @@
   
 - ⚡ Fun fact : play in coding for goals
   
-- 🤔 I’m looking for intership
+- 🤔 I’m looking for internship
   
 - 💬 Ask me about Tech
   
